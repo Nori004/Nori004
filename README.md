@@ -10,7 +10,7 @@
  
  💬 Ask me about anything! 
  
- 📫 How to reach me: 📩 bunny.nono@gmail.com
+ 📫 How to reach me: 📩 bunny[dot]nono[at]gmail[dot]com
  
  ⚡ Fun fact: I learned japanese! 💖
  
